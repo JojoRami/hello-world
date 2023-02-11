@@ -9,3 +9,5 @@ entire communities, depending on who is affected by major decisions. I'm also in
 gaming, music, movies, and especially media where various voices and experiences are included.
 
 I appreciate honesty, and also goofiness and dry humor  ^_^
+
+Edit 02-11-23 : This is very cool to see this 6 years later. I completely forgot I set this up.
